@@ -1,1 +1,1 @@
-[![Sponsored](https://sirdjwozmsrdrauzkvhc.supabase.co/functions/v1/ad/gameboy.v04)](https://sirdjwozmsrdrauzkvhc.supabase.co/functions/v1/click/gameboy.v04)
+[![Sponsored](https://preview-sandbox--6a088013ce19a74e554598b1.base44.app/ad/gameboyv)](https://preview-sandbox--6a088013ce19a74e554598b1.base44.app/click/gameboyv)
