@@ -1,1 +1,1 @@
-[![Sponsored](https://github-earnings.preview.emergentagent.com/api/ad/ocot)](https://github-earnings.preview.emergentagent.com/api/click/ocot)
+[![Sponsored](https://readme-earn.preview.emergentagent.com/api/ad/gameboyvlol)](https://readme-earn.preview.emergentagent.com/api/click/gameboyvlol)
