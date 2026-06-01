@@ -1,2 +1,1 @@
-[![Sponsored](https://readme-earn.preview.emergentagent.com/api/ad/gameboyvlol)](https://readme-earn.preview.emergentagent.com/api/click/gameboyvlol)
-
+[![Sponsored](https://readme-earn.preview.emergentagent.com/api/ad/gameboyvlol?repo=fsdf)](https://readme-earn.preview.emergentagent.com/api/click/gameboyvlol?repo=fsdf)
